@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi! I'm Khuzaima Asad 3rd year computer science student at Bahria University.<br>
+Hi! I'm Khuzaima Asad Final year computer science student at Bahria University.<br>
 
 
 ## 🌐 Socials:
